@@ -1,0 +1,1 @@
+I am a passionate and self-taught web developer. I build websites entirely by myself using my own skills, creativity, and coding knowledge. I do not rely on AI to create my websites. I believe in learning, coding, problem-solving, and building projects from scratch. My goal is to create modern, professional, responsive, and high-quality websites.
